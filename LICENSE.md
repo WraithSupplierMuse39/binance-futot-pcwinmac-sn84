@@ -1,4 +1,4 @@
-# 
+# Élite binance futures bot plugins for Mac OS | VIP binance futures bot plugins for PC Windows. Featuring pools de liquidez DEX and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
